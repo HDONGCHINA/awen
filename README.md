@@ -1,2 +1,2 @@
 # awen
-wo memorise what happened near 2025
+to memorise what happened near 2025
